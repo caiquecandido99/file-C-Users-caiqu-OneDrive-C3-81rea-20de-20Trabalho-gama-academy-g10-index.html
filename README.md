@@ -1,0 +1,1 @@
+# file-C-Users-caiqu-OneDrive-C3-81rea-20de-20Trabalho-gama-academy-g10-index.html
